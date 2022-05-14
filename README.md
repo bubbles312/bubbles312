@@ -2,7 +2,7 @@
 - 👀 I’m interested in techno, house, progressive music, body building, sport bikes, photography, travel.
 - 🌱 I’m currently learning to roller blade
 - 💞️ I’m looking to collaborate on Automation Testing projects.
-- 📫 How to reach me @khaleesi996@gmail.com
+- 📫 khaleesi996@gmail.com
 
 <!---
 bubbles312/bubbles312 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
