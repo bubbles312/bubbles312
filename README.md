@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bubbles312
-- 👀 I’m interested in techno, house, progressive music, body building, sport bikes, photography, travel.
+- 👀 I’m interested progressive music, fitness, sport bikes, photography, travel.
 - 🌱 I’m currently learning to roller blade
 - 💞️ I’m looking to collaborate on Automation Testing projects.
 - 📫 khaleesi996@gmail.com
